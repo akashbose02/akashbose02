@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/akashbose02](https://github.com/akashbose02)
 
-- 📫 How to reach me **akashbose2002@gmail.com**
+- 📫 How to reach me **akashbose002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
